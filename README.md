@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jackpkb
 - 👀 I’m interested in Biology and Chemsitry
-- 🌱 I’m currently learning Alevels 🥲🔫
+- 🌱 I’ve slayed my Alevels (hopefully) 🥲🔫
 - 💞️ I’m looking to collaborate on my amazing website
 - 📫 How to reach me never
 - 😄 Pronouns: He/Him
